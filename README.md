@@ -1,2 +1,2 @@
 #gato#
-## Os gatos são muito intelinte, fofinho,deixam a casa mais alegre, gostam de fazer bagunça tambem##
+## Os gatos são muito inteligente, fofinho,deixam a casa mais alegre, gostam de fazer bagunça tambem##
